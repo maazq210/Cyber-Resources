@@ -1,0 +1,1 @@
+When I first decided I wanted to do cyber I didnt have a clue where to start 
